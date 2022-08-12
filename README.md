@@ -16,3 +16,6 @@ final code :- https://github.com/centaurusghost/OZ-ESHOP
 
 ## If you are Eager to Visit click below
 >  http://ozeshop.lovestoblog.com/
+
+All Right Reserved by @
+#### Made with [TilakKhatri](https://github.com/TilakKhatri/) && [centaurusghost](https://github.com/centaurusghost/)
